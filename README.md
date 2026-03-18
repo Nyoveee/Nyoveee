@@ -1,4 +1,5 @@
-## Hi there 👋
+Ex Plazma Burst 2 staff member. Oh yea, if you need Plazma Burst 3 invite code just DM me on discord (Nyove). 
+I made Bad Apple in PB2! https://www.youtube.com/watch?v=RLlGjiXMRbI
 
 <!--
 **Nyoveee/Nyoveee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
