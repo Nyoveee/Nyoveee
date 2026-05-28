@@ -1,5 +1,3 @@
-Ex Plazma Burst 2 staff member. 
-
 Early access for [Plazma Burst 3](https://www.plazmaburst.net/) is here. If you need Plazma Burst 3 invite code just DM me on discord (Nyove), I have alot of tokens. 🤣
 
 <!--
