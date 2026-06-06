@@ -2,7 +2,7 @@
 
 ## Hello fellow marines!
 
-Been playing Plazma Burst since 2012, and creator of the popular map `Nyove-rocket`. Ex moderator of the Plazma Burst community, and developer of many related applications.
+Been playing Plazma Burst since 2011, and creator of the popular map `Nyove-rocket`. Ex moderator of the Plazma Burst community, and developer of many related applications.
 
 Closed beta access for [Plazma Burst 3](https://www.plazmaburst.net/) is here. Feel free to contact me on discord if you need access tokens (or subscribe to Eric Gurt's [patreon](https://www.patreon.com/cw/Eric_Gurt?vanity=Eric_Gurt) if you wanna show support). 
 
