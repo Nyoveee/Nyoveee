@@ -7,6 +7,7 @@ Been playing Plazma Burst since 2011, and creator of the popular map `Nyove-rock
 Closed beta access for [Plazma Burst 3](https://www.plazmaburst.net/) is here. Feel free to contact me on discord if you need access tokens (or subscribe to Eric Gurt's [patreon](https://www.patreon.com/cw/Eric_Gurt?vanity=Eric_Gurt) if you wanna show support). 
 
 Discord: [Nyove](https://discord.com/users/94308565455474688)
+(feel free to add me!)
 
 Thank you so much to this community and to everyone who has made my life so much meaingful and fruitful. I would have never been where I am at if it's not for my friends and the community. It is a great honor to be able to serve this community, and I'm glad to be a part of it. 💖
 
